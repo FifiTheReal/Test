@@ -1,1 +1,1 @@
-Ez a leírás.
+Ez a leírás
